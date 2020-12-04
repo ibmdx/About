@@ -5,8 +5,8 @@ Find me on social networks:<br></br>
 https://linkedin.com/in/bmdx<br>
 https://dribbble.com/bmdx<br>
 https://medium.com/@bmdx<br>
-https://twitter.com/ibmdx<br>
-https://facebook.com/ibmdx<br>
+https://twitter.com/Ibmdx<br>
+https://facebook.com/Ibmdx<br>
 https://instagram.com/lbmdx<br>
 https://behance.net/bmdx<br></br>
 or find me by search <b>BMDX</b> on Google!
