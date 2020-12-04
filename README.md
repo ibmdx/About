@@ -8,5 +8,5 @@ https://medium.com/@bmdx<br>
 https://twitter.com/ibmdx<br>
 https://facebook.com/ibmdx<br>
 https://instagram.com/lbmdx<br>
-https://be.net/bmdx
+https://be.net/bmdx<br>
 or find me by search <b>BMDX</b> on google!
