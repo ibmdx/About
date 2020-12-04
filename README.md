@@ -1,13 +1,13 @@
 Hi 👋<br>
-I am Mobin, A product designer.
-I have combined art and science by designing digital products and services for humans.
-Find me on social networks:
-https://linkedin.com/in/bmdx
-https://dribbble.com/bmdx
-https://medium.com/@bmdx
-https://twitter.com/ibmdx
-https://facebook.com/ibmdx
-https://instagram.com/lbmdx
-https://be.net/bmdx
-
+I am Mobin, A product designer.<br>
+I have combined art and science by designing digital products and services for humans.<br>
+Find me on social networks:<br>
+https://linkedin.com/in/bmdx<br>
+https://dribbble.com/bmdx<br>
+https://medium.com/@bmdx<br>
+https://twitter.com/ibmdx<br>
+https://facebook.com/ibmdx<br>
+https://instagram.com/lbmdx<br>
+https://be.net/bmdx<br>
+<br>
 #BMDX
