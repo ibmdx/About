@@ -1,5 +1,5 @@
 Hi 👋<br>
-I am Mobin, A product designer.<br>
+I am Mobin M. Bahrami, a product designer.<br>
 I have combined art and science by designing digital products and services for humans.<br>
 Find me on social networks:<br>
 https://linkedin.com/in/bmdx<br>
