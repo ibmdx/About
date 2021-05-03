@@ -8,6 +8,6 @@ https://dribbble.com/bmdx<br>
 https://medium.com/@bmdx<br>
 https://twitter.com/Ibmdx<br>
 https://facebook.com/Ibmdx<br>
-https://instagram.com/llbmdx<br>
 https://behance.net/bmdx<br></br>
+https://instagram.com/llbmdx<br>
 or find me by google <b>BMDX</b>
