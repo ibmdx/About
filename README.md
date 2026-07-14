@@ -9,4 +9,4 @@ https://x.com/Ibmdx<br>
 https://behance.net/bmdx<br>
 https://instagram.com/llbmdx<br>
 https://facebook.com/Ibmdx<br><br>
-or find me by google <b>BMDX</b>
+Or find me on Google <b>BMDX</b>
